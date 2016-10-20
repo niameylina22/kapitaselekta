@@ -1,0 +1,2 @@
+# kapitaselekta
+latihan kapita selekta
